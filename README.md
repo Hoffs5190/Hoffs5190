@@ -1,8 +1,10 @@
-- 👋 Hi, I’m @Hoffs5190
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+Socials~@Hoffs5190
+USA~🇺🇸🫡🤘💪
+Utah~🌄 🚵🏔️❄️🏂
+Single~🥹👀🚺
+33~🚹♂️♉🐂
+Kids~0️⃣👶🍼
+Religion~👽👾🛸👻
 
 <!---
 Hoffs5190/Hoffs5190 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
