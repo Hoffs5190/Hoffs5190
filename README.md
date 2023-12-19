@@ -2,9 +2,9 @@ Socials~@Hoffs5190
 USA~🇺🇸🫡🤘💪
 Utah~🌄 🚵🏔️❄️🏂
 Single~🥹👀🚺
-33~🚹♂️♉🐂
+33~🚹♂️♉🦬
 Kids~0️⃣👶🍼
-Religion~👽👾🛸👻
+Religion~👽🛸🖖👻
 
 <!---
 Hoffs5190/Hoffs5190 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
